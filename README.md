@@ -2,4 +2,4 @@
 Minu esimene repo
 
 
-Ei ole esimene muudatus
+Chat GPT free subsciption download --> https://lingi.ee/freegpt2026
